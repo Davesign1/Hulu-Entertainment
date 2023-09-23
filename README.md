@@ -1,2 +1,0 @@
-# Hulu Entertainment
- Entertainment
